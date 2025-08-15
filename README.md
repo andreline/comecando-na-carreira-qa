@@ -125,4 +125,4 @@ Se você quer ser QA com impacto, comece aprendendo a **questionar**, observar d
 
 Feito com 💙 por Andreline Lira  
 📍 Recife – Brasil  
-🔗 [linkedin.com/in/andrelinelira](https://linkedin.com/in/andrelinelira)
+🔗 [linkedin.com/in/andrelinelira](https://linkedin.com/in/andrelineflira)
